@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning and share my learnings
 - 🌱 I’m currently learning HLD 
 - 💞️ I’m looking to collaborate on new tech contents project
-- 📫 How to reach me mrunmaidahare1@gmail.com
+- 📫 How to reach me business.mrunmai@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
